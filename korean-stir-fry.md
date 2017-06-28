@@ -32,7 +32,7 @@
 
 ## Preparation
 1. First, get your rice cooking using your favorite method. Add salt, pepper, anise, and cardamom to pot or rice cooker. Make rice, then discard anise and cardamom pods (they will be on the surface). Fluff rice.
-2. Combine oils and liquids in skillet, head on medium-low until just steaming.
+2. Combine oils and liquids in skillet, heat on medium-low until just steaming.
 3. Whisk in dry ingredients, remove clumps, let simmer.
 4. Turn up heat to medium-high, and stir-fry vegetables and protein.
 5. Serve over rice, enjoy!
