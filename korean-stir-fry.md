@@ -36,4 +36,6 @@
 3. Whisk in dry ingredients, remove clumps, let simmer.
 4. Turn up heat to medium-high, and stir-fry vegetables and protein.
 5. Serve over rice, enjoy!
- 
+
+## Beverage Pairings
+This meal pairs best with a hearty beverage which works well with the protein you have selected, but might be spicy. Avoid carbonation 
